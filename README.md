@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @akhira2023
-- 👀 I’m interested in Enterprenurenship
+- 👀 I’m interested in Entrepreneurship
 - 🌱 I’m currently learning Business and Strategy
 - 💞️ I’m looking to collaborate on ?
 - 📫 How to reach me ? me.kuttichathan@gmail.com
